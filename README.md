@@ -12,7 +12,7 @@ AuDHD + UPD, system host, very very loud guy. i block freely just dont be weird 
 
 ╰─➤  mostly @ bakery or anywhere friends r! ***int*** im very friendly
 
-special interests are ***stray, borderlands, the eltingville club and space***. dont ever get me started ill go crazy
+special interests are ***stray, borderlands, superheroes, the eltingville club and space***. dont ever get me started ill go crazy
 
 ### dni ***-14*** & ***21+***
 
