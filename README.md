@@ -5,7 +5,7 @@
 # ⬩──➤ . . FILE : EDWARD
 𖦹  call me **edward**, rhys or clint :-)
 
-AuDHD + UPD, system host, very very loud guy. i block freely just dont be weird & u will be safe from my wrath
+AuDHD + UPD, system host, very very loud guy. i **block freely** just dont be weird & u will be safe from my wrath
 
 
 ![urple divider](https://media.discordapp.net/attachments/966560058865483836/1055936857172627549/IMG_4398.png?ex=69976ad5&is=69961955&hm=9d503ccf264f4fde88ac729b13a4c9170278746ebb07514f54a886f0bb780da4&=&format=webp&quality=lossless&width=1695&height=135)
