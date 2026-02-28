@@ -7,6 +7,8 @@
 
 AuDHD + UPD, system host, very very loud guy. i **block freely** just dont be weird & u will be safe from my wrath
 
+dont b weird if we arent close. im 17!! a minor !!
+
 
 ![urple divider](https://64.media.tumblr.com/a47eb7e402fc4da3620a662532afc49b/fbd75a37df76b1ba-f8/s2048x3072/771f72dbd756fa6f662dd21f1e2da09ed536bcc8.pnj)
 
