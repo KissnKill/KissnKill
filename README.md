@@ -1,8 +1,8 @@
-> ' I don't want a next life. '
+> ' Take a look to the sky just before you die, '
 
-![freak](https://i.pinimg.com/1200x/9e/8b/49/9e8b495e2b555b3f5c9955c8a07e8d84.jpg)
+![freaks plural](https://i.pinimg.com/1200x/b7/00/8e/b7008e63ab30253cd808e012be242915.jpg)
 
-# ⬩──➤ . . FILE : EDWARD
+# ╋━ FILE : EDWARD
 𖦹  call me **edward**, rhys or clint :-)
 
 AuDHD + UPD, system host, very very loud guy. i **block freely** just dont be weird & u will be safe from my wrath
@@ -10,14 +10,16 @@ AuDHD + UPD, system host, very very loud guy. i **block freely** just dont be we
 dont b weird if we arent close. im 17!! a minor !!
 
 
-![urple divider](https://64.media.tumblr.com/a47eb7e402fc4da3620a662532afc49b/fbd75a37df76b1ba-f8/s2048x3072/771f72dbd756fa6f662dd21f1e2da09ed536bcc8.pnj)
+![divider](https://64.media.tumblr.com/7b5980143d0260acbb77ac789da32d95/b09dcc4fcb1ef53a-13/s2048x3072/c2f1176b85b5859a87ab9edaa2d884ce8fc012f6.pnj)
 
 ╰─➤  mostly @ bakery or anywhere friends r! ***int*** im very friendly
 
 special interests are ***stray, borderlands, the eltingville club and space***. dont ever get me started ill go crazy
 
+do not dump random personal issues on me if i barely know you i dont care and i WILL let you know
+
 ### dni ***-14*** & ***21+***
 
-![clint flying or something](https://64.media.tumblr.com/b0e6be13bfe0542449837b8111944b7b/4321fa1b7af3d460-a9/s500x750/61be6682ca1eadd8d3a51aadbd4bd0a4d3537ecb.pnj)
+![clint flying or something](https://i.pinimg.com/1200x/e9/88/cc/e988cc2dfca4766d090b46ca2743f5d9.jpg)
 
-> ' I just want a nap. '
+> ' It's the last time you will '
