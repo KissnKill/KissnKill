@@ -14,6 +14,8 @@ dont b weird if we arent close. im 17!! a minor !!
 
 ╰─➤  mostly @ bakery or anywhere friends r! ***int*** im very friendly
 
+inspo is fine , just ask! . . . dont copy i feel like this is common courtesy 
+
 special interests are ***stray, borderlands, the eltingville club and space***. dont ever get me started ill go crazy
 
 do not dump random personal issues on me if i barely know you i dont care and i WILL let you know
