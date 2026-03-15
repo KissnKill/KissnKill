@@ -3,7 +3,7 @@
 ![freaks plural](https://i.pinimg.com/1200x/b7/00/8e/b7008e63ab30253cd808e012be242915.jpg)
 
 # ╋━ FILE : EDWARD
-𖦹  call me **edward**, rhys or clint :-)
+𖦹  call me **edward**, rhys or benrey :-)
 
 AuDHD + UPD, system host, very very loud guy. i **block freely** just dont be weird & u will be safe from my wrath
 
