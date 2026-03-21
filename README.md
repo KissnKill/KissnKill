@@ -1,6 +1,6 @@
 > ' HAIL TO THE KING, BABY ! '
 
-![angle](https://i.pinimg.com/1200x/a3/70/78/a3707821941732d329d44f3241941753.jpg)
+![angle](https://i.pinimg.com/1200x/b9/70/f4/b970f4e5098a3ad2b8d176bce4880570.jpg)
 
 # ╋━ FILE : EDWARD
 𖦹  call me **edward**, rhys or benrey :-)
@@ -21,5 +21,3 @@ special interests are ***stray, borderlands, HLVRAI, the eltingville club and sp
 do not dump random personal issues on me if i barely know you i dont care and i WILL let you know
 
 ### dni ***-14*** & ***21+***
-
-![jack being a freak](https://media.discordapp.net/attachments/1218594378965319782/1484745979923267584/download_3.png?ex=69bf58f2&is=69be0772&hm=24e9424eb0d238cb34be60f304245984ec174930b55c244610cec20c66797487&=&format=webp&quality=lossless&width=1410&height=692)
