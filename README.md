@@ -1,6 +1,6 @@
-> ' HAIL TO THE KING, BABY ! '
+> ' hold onto ur butts ! '
 
-![angle](https://i.pinimg.com/1200x/b9/70/f4/b970f4e5098a3ad2b8d176bce4880570.jpg)
+![angle](https://i.pinimg.com/1200x/34/d7/55/34d7557e1f39adb159c4b88cba059d17.jpg)
 
 # ╋━ FILE : EDWARD
 𖦹  call me **edward**, rhys or benrey :-)
