@@ -20,4 +20,4 @@ special interests are ***stray, borderlands, HLVRAI, the eltingville club and sp
 
 do not dump random personal issues on me if i barely know you i dont care and i WILL let you know
 
-### i wont befriend anyone ***-15*** & dni ***21+***
+### i wont befriend anyone ***-15*** & dni ***19+***
