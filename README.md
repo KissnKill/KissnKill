@@ -1,4 +1,4 @@
-> ' hold onto ur butts ! '
+> ' days pass, but nothing changes '
 
 ![mi](https://i.pinimg.com/originals/98/50/d4/9850d4b6b946026e595c257206481daf.gif)
 
@@ -21,3 +21,6 @@ special interests are ***stray, borderlands, HLVRAI, the eltingville club and sp
 do not dump random personal issues on me if i barely know you i dont care and i WILL let you know
 
 ### DNI ***-15*** & ***19+***
+
+
+> ' its like time forgot to take me with it. '
