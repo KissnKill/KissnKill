@@ -1,7 +1,7 @@
 
 ![mi](https://i.pinimg.com/originals/98/50/d4/9850d4b6b946026e595c257206481daf.gif)
 
-# ━━━ FILE : RHYS
+# ━━━ THIS IS OLD AND BUTT IM REDOING IT LATER. OK? OK
 𖦹  call me **rhys** or edward :-)
 
 AuDHD + UPD, system host, very very loud guy. i **block freely** just dont be weird & u will be safe from my wrath
